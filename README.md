@@ -1,0 +1,1 @@
+# 221120241010_Sevcan KAYA_veri yapıları ve programları
